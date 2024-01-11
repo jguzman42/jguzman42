@@ -8,7 +8,7 @@
 
 - 📫 How to reach me **guzmanjose3456@gmail.com**
 
-- 📄 Know about my experiences [https://acrobat.adobe.com/id/urn:aaid:sc:va6c2:6d55acf6-c9fc-4535-8264-44612bab9742](https://acrobat.adobe.com/id/urn:aaid:sc:va6c2:6d55acf6-c9fc-4535-8264-44612bab9742)
+- 📄 Know about my experiences [Resume](https://acrobat.adobe.com/id/urn:aaid:sc:va6c2:6d55acf6-c9fc-4535-8264-44612bab9742)
 
 - ⚡ Fun fact **I think I'm funny**
 
