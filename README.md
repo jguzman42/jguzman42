@@ -9,7 +9,7 @@
 
 - 📄 Know about my experiences [Resume](https://acrobat.adobe.com/id/urn:aaid:sc:va6c2:6d55acf6-c9fc-4535-8264-44612bab9742)
 
-- ⚡ Fun fact **I think I'm funny**
+- ⚡ Fun fact **I'm a passionate gamer**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
