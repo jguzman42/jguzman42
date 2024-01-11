@@ -5,7 +5,7 @@
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=jguzman42&label=Profile%20views&color=0e75b6&style=flat" alt="jguzman42" /> </p>
 
-- 🌱 I’m currently learning **React**
+- 🌱 I’m currently working on my **Portfolio**
 
 - 📫 How to reach me **guzmanjose3456@gmail.com**
 
