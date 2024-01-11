@@ -1,3 +1,4 @@
+![coding](https://github.com/jguzman42/jguzman42/assets/79719045/77f33188-6a1c-4562-af1a-de3debc3dba6)
 <h1 align="center">Hi 👋, I'm Jose Guzman-Batista</h1>
 <h3 align="center">A passionate Tech Enthusiast</h3>
 <img align="right" alt="Coding" width="400" src="https://cdn.dribbble.com/users/1162077/screenshots/3848914/programmer.gif">
