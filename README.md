@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **guzmanjose3456@gmail.com**
 
-- 📄 Know about my experiences [Resume](https://acrobat.adobe.com/id/urn:aaid:sc:va6c2:6d55acf6-c9fc-4535-8264-44612bab9742)
+- 📄 Know about my experiences [Resume](https://acrobat.adobe.com/id/urn:aaid:sc:VA6C2:60360650-d352-4010-8236-bc5fe03e9734)
 
 - ⚡ Fun fact **I'm a passionate gamer**
 
